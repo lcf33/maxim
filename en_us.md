@@ -6,3 +6,5 @@ The suppreme happiness of life is the conviction that we are loved.
 Every man dies, not every man really lives.
 	2019/12/9
 Yesterday is history, tomorrow is a mystery, and today is g gift.
+	2019/12/10
+Life was like a box of chocolates, you never know what you're gonna get.
