@@ -8,3 +8,5 @@ Every man dies, not every man really lives.
 Yesterday is history, tomorrow is a mystery, and today is g gift.
 	2019/12/10
 Life was like a box of chocolates, you never know what you're gonna get.
+	2019/12/11
+Being genius is not enough, it takes courage to change people's hearts.
