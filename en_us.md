@@ -10,3 +10,5 @@ Yesterday is history, tomorrow is a mystery, and today is g gift.
 Life was like a box of chocolates, you never know what you're gonna get.
 	2019/12/11
 Being genius is not enough, it takes courage to change people's hearts.
+	2019/12/12
+Popularity is the slutty little cousin of prestige.
