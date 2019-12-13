@@ -12,3 +12,5 @@ Life was like a box of chocolates, you never know what you're gonna get.
 Being genius is not enough, it takes courage to change people's hearts.
 	2019/12/12
 Popularity is the slutty little cousin of prestige.
+	2019/12/13
+In all that sprawling city, there was everything except an end.
