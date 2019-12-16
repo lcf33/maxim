@@ -16,3 +16,5 @@ Popularity is the slutty little cousin of prestige.
 In all that sprawling city, there was everything except an end.
 	2019/12/15
 I must say a word about fear. It is life's only true opponent. Only fear can defeat life.
+	2019/12/16
+Work hard! Work will save you. Work is the only thing that will see you through this.
