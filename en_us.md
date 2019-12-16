@@ -18,3 +18,5 @@ In all that sprawling city, there was everything except an end.
 I must say a word about fear. It is life's only true opponent. Only fear can defeat life.
 	2019/12/16
 Work hard! Work will save you. Work is the only thing that will see you through this.
+	2019/12/17
+A little chance encounter could be the one you've waited for.
