@@ -20,3 +20,5 @@ I must say a word about fear. It is life's only true opponent. Only fear can def
 Work hard! Work will save you. Work is the only thing that will see you through this.
 	2019/12/17
 A little chance encounter could be the one you've waited for.
+	2019/12/18
+The important thing in life is to have a great aim, and the determination to attain it.
