@@ -22,3 +22,5 @@ Work hard! Work will save you. Work is the only thing that will see you through 
 A little chance encounter could be the one you've waited for.
 	2019/12/18
 The important thing in life is to have a great aim, and the determination to attain it.
+	2019/12/19
+It is not our abilities that show what we truly are, it is our choices.
