@@ -24,3 +24,5 @@ A little chance encounter could be the one you've waited for.
 The important thing in life is to have a great aim, and the determination to attain it.
 	2019/12/19
 It is not our abilities that show what we truly are, it is our choices.
+	2019/12/20
+We're all in the gutter, but some of us are looking at the stars.
