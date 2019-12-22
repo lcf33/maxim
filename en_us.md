@@ -26,3 +26,5 @@ The important thing in life is to have a great aim, and the determination to att
 It is not our abilities that show what we truly are, it is our choices.
 	2019/12/20
 We're all in the gutter, but some of us are looking at the stars.
+	2019/12/22
+Do not, for one repulse, give up the purpose that you resolved to effect.
