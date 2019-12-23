@@ -28,3 +28,5 @@ It is not our abilities that show what we truly are, it is our choices.
 We're all in the gutter, but some of us are looking at the stars.
 	2019/12/22
 Do not, for one repulse, give up the purpose that you resolved to effect.
+	2019/12/23
+All happy families are happy alike, all unhappy families are unhappy in their own way.
