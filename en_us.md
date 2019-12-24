@@ -30,3 +30,5 @@ We're all in the gutter, but some of us are looking at the stars.
 Do not, for one repulse, give up the purpose that you resolved to effect.
 	2019/12/23
 All happy families are happy alike, all unhappy families are unhappy in their own way.
+	2019/12/24
+I want you to be the very best version of yourself that you can be.
